@@ -1,0 +1,825 @@
+# Dalton Field of Vision - DVD 2 (Contextualized Transcript)
+
+**Duration:** ~1:06:30
+**Frames:** 133 (one every 30 seconds)
+**Slide pages (OCR):** 23
+
+---
+
+## Section 1: Introduction
+
+### [0:00 - 0:30] `frame_0001.jpg`
+
+> **📊 Slide:**
+> Pe me |!
+> VL) lee
+> Amer io
+> jac ied | ga ia
+> ear hee mt pe | ia
+> EEEREEE itFTEe
+> Time i |
+> ee oe es)
+> jae Co ros
+> AN DLAN
+> (ABCEL HM
+> ot | oe
+> abee
+> STRUCTURE
+> TS REPAIRED
+> i ee a ee a |
+
+Music We talk about managing risk and that came about because on when this exogenous event took place Exogenous just means something that's outside of anybody's model for, you know, running their portfolio or running their account. When this exogenous event took place in, because they had managed risk, their loss was minimal.
+
+### [0:30 - 1:00] `frame_0002.jpg`
+
+When this exogenous event took place in, because they had managed risk, their loss was minimal. You talk, if you're running them off a lot of money and you start to get, you know, a couple percent difference in, that's big money. And it has a lot to do with your longer term performance. Now, let's complicate this, right? If I take this example right here and I say the structure wasn't elongated. I got a pop late on Friday afternoon.
+
+### [1:00 - 1:30] `frame_0003.jpg`
+
+I got a pop late on Friday afternoon. I don't think it's sustainable. I look, I get a balancing day on Monday, which is very common after you get a big movement like this. People don't know and they just kind of hold that level. And then it comes back and I say, okay, we took all that back on Tuesday. So far, not terribly difficult to comprehend. Maybe a little more difficult if you actually had trades on and you're watching this trade to do.
+
+### [1:30 - 2:00] `frame_0004.jpg`
+
+Maybe a little more difficult if you actually had trades on and you're watching this trade to do. But, you know, when you're not emotionally involved in it, it's not that, it's not quite that difficult. But, let's complicate it. On the day that the market corrected, we opened, we opened up in here, we came down here, we corrected this. But then we go back up and we don't leave a good high. In other words, what is a good high or a secure high would be a high that had a what?
+
+### [2:00 - 2:30] `frame_0005.jpg`
+
+In other words, what is a good high or a secure high would be a high that had a what? A selling tail on it. A selling tail, when I don't have a selling tail, it's an indication when I got at the highest prices of the day, did I have anybody saying, wow, what an opportunity, you bought some. Okay? Is that a piece of information? We organize under the market profile. We look at the auction process and in the two-way auction process, there's continual information.
+
+### [2:30 - 3:00] `frame_0006.jpg`
+
+We look at the auction process and in the two-way auction process, there's continual information. Part of the information, we corrected this, there was aggressive buying down here. And notice, notice how close we came down to this low down here. Markets are another thing you'll hear very often. Markets are very, those that have been around a long time, what's the word? Markets are very what? Visual. They're very visual. They're not mathematical. They go to levels that you can see pretty easily. So, if you learn to do your homework ahead of time, you know where those visual references are,
+
+### [3:00 - 3:30] `frame_0007.jpg`
+
+> **📊 Slide:**
+> > WN
+> . BALANCED DAY
+> DAY TYPES
+> . PRIMARY DAY
+> . VARIATION OF PRIMARY DAY
+> . TREND DAY
+> . DOUBLE DISTRIBUTION
+> TREND DAY
+
+So, if you learn to do your homework ahead of time, you know where those visual references are, it will give you a tremendous edge. Julia used the term early on, we're after an edge. Whether it's edge in how we look at the market, whether it's an edge of doing our homework, knowing where those visual references are. So now, the market auctioned lower and corrected this, and it found down here, it found what? It found buyer, which is the same, basically the same low we had there.
+
+### [3:30 - 4:00] `frame_0008.jpg`
+
+It found buyer, which is the same, basically the same low we had there. So it came down there, then the market started doing what? One time framing up. One time framing up. There's your buying tail, one time frame, one time frame, one time frame, one time frame. This does not stop the one time framing, okay? Just because they match, it takes two ticks to stop one time framing. So we go all the way up, and I think that's one tick. So I think this market, until the very last period, basically one time framed up from the bottom. Now, right here, you saw this once below, once before.
+
+### [4:00 - 4:30] `frame_0009.jpg`
+
+Now, right here, you saw this once below, once before. You see what is called the afternoon pullback low. This turned into a trend day. It started down, it turned into a trend day, which means the trend just went one way from that point on. Very often, late in a trend day, you will get a period where the market settles down, and it's doing nothing but adjusting inventory that got a little bit too long.
+
+### [4:30 - 5:00] `frame_0010.jpg`
+
+and it's doing nothing but adjusting inventory that got a little bit too long. So you see the market go up. Late in the day, you'll see some settling. You may see a little pullback. The market settles, and then it takes off and runs again. A lot of people, first of all, a lot of people get caught. As soon as the market starts to settle, they sell into it and not realizing it's just an inventory correction. Then it turns around and goes back up. But the point I want to make right here is the afternoon pullback low.
+
+### [5:00 - 5:30] `frame_0011.jpg`
+
+But the point I want to make right here is the afternoon pullback low. If the market trends up from the C period, goes on up, we balance late in the day. There's the balance. K period, H-I-J-K-L-M-N, goes higher. That K period, that pullback low, is a significant short-term reference point for short-term traders. Again, I asked this question the first time I had a room full of traders.
+
+### [5:30 - 6:00] `frame_0012.jpg`
+
+Again, I asked this question the first time I had a room full of traders. I asked how many people know or understand what I mean when I'm talking about the pullback low. The show of hands was zero. And I was surprised. But when it pulls, all that is is an inventory adjustment when it comes back in the afternoon. Okay? Now, if on that becomes a reference. If on the following day, we don't trade back down below the late afternoon pullback low of a big trend day,
+
+### [6:00 - 6:30] `frame_0013.jpg`
+
+> **📊 Slide:**
+> PRIMARY DAY
+> rani J
+> ACOrawti
+> EZIIIIE
+
+If on the following day, we don't trade back down below the late afternoon pullback low of a big trend day, has anything changed in the market? No! There's been no change in the marketplace. Now, if in fact, you don't understand that, you don't understand structure, you don't understand how to look at a market, you may see price going down towards that level. And if you're just trading price, oh my golly, you want to get short. You want to get short this market. You can't wait to get short. And all of a sudden, the market turns around and it reps back up to the upside. And you don't understand what happened.
+
+### [6:30 - 7:00] `frame_0014.jpg`
+
+And you don't understand what happened. That pullback low, all it was was an inventory adjustment. And if it doesn't get down below there the next day, all it's telling you is, guess what folks? Nothing's changed from the late rally and inventory adjustment we had the previous day. Now, at this point, you're probably starting to see how complex a lot of this information can get. You're starting to see nuances, right? Pullback low. Pullback low.
+
+### [7:00 - 7:30] `frame_0015.jpg`
+
+Pullback low. People, how many people before you heard it from me, have ever heard the term pullback low? No hands? No hands showing and there's a lot of experience in this group. Okay? It's a nuance, right? Do nuances make a difference? Nuances make a big difference. Talked about my friend, maybe just a fraction of a step slow getting through the hole like Xavier. If you can't get through the hole as a running back, you get tackled, right? It doesn't take much to make the difference between being successful and unsuccessful.
+
+### [7:30 - 8:00] `frame_0016.jpg`
+
+It doesn't take much to make the difference between being successful and unsuccessful. There are not many successful traders. I mean, when you look at, I don't have the actual numbers, I'm not sure anybody does, but all the anecdotal evidence you look at over the years, say that it's a pretty small universe. But guess what? It's a very small universe for surgeons that you want to do heart surgery on you too, right? There's as much money in this as there is in heart surgery. So guess what? It's going to be, it's going to be competitive and there's not going to be a lot of people that make it and can do that competition.
+
+### [8:00 - 8:30] `frame_0017.jpg`
+
+It's going to be, it's going to be competitive and there's not going to be a lot of people that make it and can do that competition. Nuances matter. If you're having heart surgery, do nuances matter? You better believe they do, right? And you think about the ability to trade successfully and adapt. You know, a heart surgeon can look at all the x-rays in the world, but once the incision is made, if it's not exactly according, it's not exactly according to the x-ray,
+
+## Section 2: You know, a heart surgeon can look at all the x-rays in the
+
+### [8:30 - 9:00] `frame_0018.jpg`
+
+> **📊 Slide:**
+> 2. VARIATION OF PRIMARY DAY
+
+You know, a heart surgeon can look at all the x-rays in the world, but once the incision is made, if it's not exactly according, it's not exactly according to the x-ray, kind of uncomforting, he goes open and opens the book, right? Or calls his buddy. He needs to be able to make that adjustment. And sometimes it's just a little nuance, but that's really a lot of what separates us. Okay, let's continue on. We talked earlier about a primary day. A primary day is kind of a standard day, a day that happens more often than not. A variation of a primary day is nothing more than a day that shows a little more aggressiveness.
+
+### [9:00 - 9:30] `frame_0019.jpg`
+
+A variation of a primary day is nothing more than a day that shows a little more aggressiveness. A little more aggressiveness and it will generally be a little more directional aggressiveness. Again, all I'm trying to do is just kind of give you a standard and kind of measure against it. We started off talking about the bell-shaped curve and we said, but you're not going to see many bell-shaped curves. My bell-shaped curve then becomes the primary day.
+
+### [9:30 - 10:00] `frame_0020.jpg`
+
+My bell-shaped curve then becomes the primary day. And if you were looking at data and all of a sudden you saw quite a skew to a bell-shaped curve, you would know something was wrong, right? I mean, where did you first, where were you first introduced to the bell-shaped curve? Probably in the grading system when you went to, you know, went to school. If you're as old as I am, they did those kind of things. But, you know, you should have so many people with A's, B's, C's, D's, etc. All of a sudden, if you have no one with A's and no one with D's, you've got a kind of weird skew to that curve and it starts to tell you something.
+
+### [10:00 - 10:30] `frame_0021.jpg`
+
+All of a sudden, if you have no one with A's and no one with D's, you've got a kind of weird skew to that curve and it starts to tell you something. And all we've done here is we used the primary day as kind of our bell-shaped curve. Then we start to look at variations from that to give you an idea of aggressiveness of the auction. A variation of a primary day is just a day that's a little more aggressiveness in the marketplace. Okay, let's take a look at our next day, or our list of days. So we have the day types.
+
+### [10:30 - 11:00] `frame_0022.jpg`
+
+So we have the day types. Primary day, variation of a primary day. We have two kinds of trend days. We have a double distribution trend day and a straight trend day. We have a trend day which just goes in one direction all day long. We have a double distribution trend day which you get one distribution, then that's blown away, and you get a second distribution. Finally, you have a very balanced type of day. So again, there's nothing magical about it.
+
+### [11:00 - 11:30] `frame_0023.jpg`
+
+So again, there's nothing magical about it. It's just a way to be thinking about the market and thinking about the structure. Primary variation, variation, trend days, two types of trend days, and let's take a look at them. Okay, here's a trend day that the market basically moves in one direction for most of the day. Okay? And those are days, the primary thing a trader, you do not do what to a trend day?
+
+### [11:30 - 12:00] `frame_0024.jpg`
+
+> **📊 Slide:**
+> THERE ARE TWO TYPES
+> OF TREND DAYS
+> 1.NORMAL TREND DAY
+> 2.DOUBLE
+> DISTRIBUTION
+> TREND DAY
+
+And those are days, the primary thing a trader, you do not do what to a trend day? Fade your trade. You do not fade it. Ah, let's refate it. You're not supposed to fade the trend day. It is amazing how many traders, when I look over their shoulder, cannot resist, cannot resist fading the trend day. I know that's happened to somebody in here. How you should be trading on a trend day is you want to get long as early as possible.
+
+### [12:00 - 12:30] `frame_0025.jpg`
+
+How you should be trading on a trend day is you want to get long as early as possible. When you've got a trend day, and as soon as you recognize a trend day and the aggressiveness of it, get on the trade. Get on the trend day. You then, if you want to do short term trades, you take profits on rallies, buy it back on breaks, versus shorting rallies and covering on the break. Get the nuance in there. You're already long, trend day goes up, take a profit, buy the pullback, take another profit.
+
+### [12:30 - 13:00] `frame_0026.jpg`
+
+You're already long, trend day goes up, take a profit, buy the pullback, take another profit. What you don't want to do is watch the trend day go up, attempt to sell it, and buy it back. You want to trade with the trend day. You want to trade with the trend day. Now, some people will be smart, they'll just leave it alone, and stay with it all day. Most short term traders cannot leave, they can't bring themselves to leave their hands off of it.
+
+### [13:00 - 13:30] `frame_0027.jpg`
+
+Most short term traders cannot leave, they can't bring themselves to leave their hands off of it. And of course, they're always sorry they didn't. I say a couple, you can always tell me you say a couple smiles, and you know what's going on. If you, in fact, if you, in fact, are going to short a trend day, you have to be right immediately. This is the third day I've been in Chicago. I was here on Monday and Tuesday, this is a Wednesday. I was here on Monday and Tuesday doing real time trading with three trading groups in Chicago.
+
+### [13:30 - 14:00] `frame_0028.jpg`
+
+I was here on Monday and Tuesday doing real time trading with three trading groups in Chicago. Some of you were here for that. Yesterday morning, I believe it was the crack spread. The crack spread looked up above a previous day's high, came back in, and we said, okay, it's a legitimate short here. But, we then said, we looked at the monthly, weekly, and daily chart, and we said, what is the long term, intermediate, and short term auction direction of the crack spread?
+
+### [14:00 - 14:30] `frame_0029.jpg`
+
+But, we then said, we looked at the monthly, weekly, and daily chart, and we said, what is the long term, intermediate, and short term auction direction of the crack spread? And the answer I got was what, Joe, up? It was up, okay? We put the short on, and the short looked pretty good for about an hour and a half. And all of a sudden, I made the statement. You've got to remember, we are short against the trend. If you are short against the trend, you have to be right, and you have to be right very quickly.
+
+### [14:30 - 15:00] `frame_0030.jpg`
+
+> **📊 Slide:**
+> rrrezr
+> TELITEIIIITG
+> = al
+> a* er
+> 3. TREND DAY
+> ma tilittiir
+> LS) ¥ veowey
+> Ss S&SG8EBCS
+> aad < c<
+
+If you are short against the trend, you have to be right, and you have to be right very quickly. The market went down for, if I think right, about an hour and a half. I remember it was B period. All of a sudden, it left a buying tail of five or six ticks. You've already seen what a buying tail is. So, aggressive buying came in with the auction. We went back up, took the high, and we extended for the rest of the day. And today, we gapped higher.
+
+### [15:00 - 15:30] `frame_0031.jpg`
+
+And today, we gapped higher. I guess it was a very big higher gap today. Those people yesterday, and I wish we could show that example today so it would stick with you, because it feels so good to shorten higher prices. We were actually shorting the crack spread at higher prices than we've seen in some period of time. We're very close to it. And it started to work for us. So, when it starts to work for you, you're feeling pretty good, right? And we're looking to say, now wait a minute.
+
+### [15:30 - 16:00] `frame_0032.jpg`
+
+And we're looking to say, now wait a minute. We are short against the trend. So many people trade, and they have no idea what the trend is. They have no idea what they're dealing with. When that market turned around, the momentum traders came in, and it was gone. So, when you look at a trend, trading a trend day, you want to trade with the trend. If you can't leave it alone, take profits on rallies, buy them back on breaks. And the trend day, we looked down here, we got a low.
+
+### [16:00 - 16:30] `frame_0033.jpg`
+
+And the trend day, we looked down here, we got a low. Did we one time frame? We stopped one period. We stopped one time framing at one point in the trend day. Then it turned around and went the rest of the day. Remember, we said it is not uncommon in a trend day to have one period in which the market will balance. Okay? So, that's one type of a trend day. Let's take a look at the second type. The second type is what we call a double distribution trend day.
+
+### [16:30 - 17:00] `frame_0034.jpg`
+
+The second type is what we call a double distribution trend day. A double distribution trend day will have a distribution down here. And if you were thinking about statistics or something, you'd have one node down here, or one distribution down here. And then, that distribution gets blown away midday or so, and it goes up and forms a whole new distribution.
+
+## Section 3: And then, that distribution gets blown away midday or so,
+
+### [17:00 - 17:30] `frame_0035.jpg`
+
+And then, that distribution gets blown away midday or so, and it goes up and forms a whole new distribution. So, you're going to, if you take the total day, you're going to have two nodes that form that distribution. Let me ask you a question. On a trend day that basically moves directionally all day, or a double distribution trend day, which of those trend days do you think emits the highest level of confidence? The double distribution or the straight trend? It's the straight trend day.
+
+### [17:30 - 18:00] `frame_0036.jpg`
+
+> **📊 Slide:**
+> TO STOP ONE
+> TIMEFRAMING
+> FOR ONE PERIOD
+> NOT UNCOMMON
+> rrrz:
+> TESTIILLIITE
+> ae -
+> se. se
+> 6c cece
+> vu v/v Vvev
+> s*eeaceoce
+> 3. TREND DAY
+> esi dister
+> cPerrierrs:
+
+It's the straight trend day. So, when you talk about thinking down the road, coming back, when the market is coming back the other way, the double distribution trend day has great, I'm not saying it's going to come back, but it presents greater odds that we'll retrace some of that range than does the trend day that moves directionally all day long. Again, those are nuances. Now, if you have a double distribution trend day, the second distribution of the double distribution trend day is usually a pretty reliable short term trading vehicle.
+
+### [18:00 - 18:30] `frame_0037.jpg`
+
+Now, if you have a double distribution trend day, the second distribution of the double distribution trend day is usually a pretty reliable short term trading vehicle. So, if you look up here, we had the breakout was in I period to form the second distribution. We had the pullback in M period, did not close the second distribution. We're talking about reference points. Okay, when it didn't close and get back in that second distribution, that becomes a reference point.
+
+### [18:30 - 19:00] `frame_0038.jpg`
+
+Okay, when it didn't close and get back in that second distribution, that becomes a reference point. Okay, and at that point, that is very often a reliable place to buy a market. And I'm not saying there's other, there's other information that you need, but I'm just saying as we're going through this as a generality, it trades like it would an independent day. I treat a double distribution trend day as two separate days, two separate ranges. If you have a double distribution trend day and you re-enter the lower distribution, that is usually fairly negative for at least the short term market information.
+
+### [19:00 - 19:30] `frame_0039.jpg`
+
+If you have a double distribution trend day and you re-enter the lower distribution, that is usually fairly negative for at least the short term market information. Okay, let's take a look and then we have a balance day. This is a balance day. The, the, uh, the first price to do business is about in the center of the range. Um, you know, it's equal on both sides. When a market is balanced, the message that a balanced market is delivering is the market saying it wants more information before it makes its next directional auction.
+
+### [19:30 - 20:00] `frame_0040.jpg`
+
+When a market is balanced, the message that a balanced market is delivering is the market saying it wants more information before it makes its next directional auction. Markets do speak to us. We have to learn how to listen to the market speak. Structure is one way to do it. The balance day is telling us that the market wants to listen, wants more information before it makes its next directional move.
+
+### [20:00 - 20:30] `frame_0041.jpg`
+
+> **📊 Slide:**
+> 4.DOUBLE DISTRIBUTION TREND DAY
+> KL MN }
+> rer - FE
+> Rix =
+> ZZeEr2 2
+> ABEFI
+> ABCEPGHI
+> AACE Fr GH
+> ABCEF GHI
+> €CEercn
+> ACDEFG
+> ACDE
+> ACDE
+> ee a a a re re eer
+> “Ss see
+> 2za3 7 7 B@
+> >> Pr > PRP» PP PP>
+> 9aood
+> AAHAnAnaaANn “tt
+> oggouooo
+> RPAmPenrenm - Ree
+
+The balance day is telling us that the market wants to listen, wants more information before it makes its next directional move. The, um, what makes the market profile unique? It's a couple of things. It's the synthesis or it's the combining of all of these separate elements to form a whole. We saw the original graphic, the famous graphic of Napoleon going into Russia. We saw how the size of the army diminished all the way along. We saw the change in temperature.
+
+### [20:30 - 21:00] `frame_0042.jpg`
+
+We saw the change in temperature. We saw the change in food supplies. And it presented a pretty good whole as the whole campaign. Look at one famous graphic. It presented a synthesis of the entire campaign. However, the other thing about the graphic, the profile graphic, you can take it apart, you can take it apart and look at the separate pieces. Markets are very complicated. We want to have the understanding of the whole, but at the same time, there is valuable information in the analysis of understanding the parts.
+
+### [21:00 - 21:30] `frame_0043.jpg`
+
+We want to have the understanding of the whole, but at the same time, there is valuable information in the analysis of understanding the parts. Within the parts will be the nuances, right? The nuances will be within the parts. So we separate it down. It allows us to study the individual parts of the profile. For example, when we're talking about a market that we had a profile where the market went down, made a low, and then one time framed up the rest of the day.
+
+### [21:30 - 22:00] `frame_0044.jpg`
+
+For example, when we're talking about a market that we had a profile where the market went down, made a low, and then one time framed up the rest of the day. Had you not separated that into parts, you would not have been able to ascertain that the market one time framed up after it made the low. You wouldn't have seen that. By taking it apart, you see the pieces and you see what is happening after the low was made. And there is a logic to that, right? The auction process that we use in trading stocks and futures is what direction?
+
+### [22:00 - 22:30] `frame_0045.jpg`
+
+The auction process that we use in trading stocks and futures is what direction? Up or down? Or two way? It is a two way auction process. In other words, it is continuous. It auctions from low to high. It auctions from high to low. In that two way auction process is a continual search for information. Our job is to be able to extract the information that is contained within the two way auction process.
+
+### [22:30 - 23:00] `frame_0046.jpg`
+
+Our job is to be able to extract the information that is contained within the two way auction process. The best way we extract that information is by using the market profile to organize the data. One of the great mistakes, people get involved, they hear about market profile, and they get involved and they start going to the internet and they start looking for words on market profile. Okay? And you then have a whole series of people out there that use my first book, Mind Over Markets,
+
+### [23:00 - 23:30] `frame_0047.jpg`
+
+> **📊 Slide:**
+> WHAT MAKES THE MARKET
+> PROFILE UNIQUE?
+> CONSIDER THESE TWO
+> DEFINITIONS:
+> SYNTHESIS—THE COMBINING OF
+> SEPARATE ELEMENTS TO FORM A
+> COHERENT WHOLE
+> ANALYSIS—THE SEPARATION OF A
+> MATERIAL WHOLE INTO ITS
+> CONSTITUENT PARTS FOR INDIVIDUAL
+> STUDY
+> a ae
+
+And you then have a whole series of people out there that use my first book, Mind Over Markets, as a basis for what they call their market profile site, or talking about the market profile. They make it mechanical. You buy here, you sell here, it doesn't work that way. What we are talking about in this video is about trading. We are talking about trading. We are simply using the market profile to organize the data generated by the two way auction process in the market.
+
+### [23:30 - 24:00] `frame_0048.jpg`
+
+We are simply using the market profile to organize the data generated by the two way auction process in the market. The profile does not tell you to buy, it does not tell you to sell, it doesn't do any of that. It is very quiet. Okay? Now the database that forms it is dynamic because it changes throughout the day. But when you start hearing people tell you, you know, you buy, you know, the profiles like this, you buy down here, sell up here.
+
+### [24:00 - 24:30] `frame_0049.jpg`
+
+But when you start hearing people tell you, you know, you buy, you know, the profiles like this, you buy down here, sell up here. It doesn't work that way. That's a very mechanical approach to it. And it's so much more, it's so much more than looking at a profile. We are talking about trading. And part of the reason that so many of my friends that are here today are here because they have been with us a long time. They have gone through the process and they will understand that the profile is a very minor part.
+
+### [24:30 - 25:00] `frame_0050.jpg`
+
+They have gone through the process and they will understand that the profile is a very minor part. We are talking about trading. We are talking about, we haven't gotten there yet, but understanding how momentum traders differ from value traders. And if you don't understand, if you don't understand that, it's very hard to really successfully compete in the marketplace. They understand that trading is a game. You know, people like to make it a science. It's not a science. It is an art and there is an awful lot of gamesmanship that goes on.
+
+### [25:00 - 25:30] `frame_0051.jpg`
+
+It is an art and there is an awful lot of gamesmanship that goes on. Other traders, hedge funds, people like this, they play games with the market. If you don't understand the potential for that game, it's going to be very difficult for you to participate in this thing. If you try and make it a science, it is going to be very frustrating to you. That's the biggest transition people have to make, is understanding that it's not always predictable.
+
+## Section 4: That's the biggest transition people have to make, is
+
+### [25:30 - 26:00] `frame_0052.jpg`
+
+That's the biggest transition people have to make, is understanding that it's not always predictable. Sometimes the real advantage comes from the fact that it's not predictable. And the opportunities sometimes will come out of absolutely nowhere. And then you say, how do I prepare myself for that? If you understand the market structure, you will have a much better understanding of how to take advantage of that. For example, if the market structure is really strong, and let's say the market structure is to the upside.
+
+### [26:00 - 26:30] `frame_0053.jpg`
+
+> **📊 Slide:**
+> VALUE AREA
+> WE TRADE VALUE NOT
+> PRICE g’
+
+For example, if the market structure is really strong, and let's say the market structure is to the upside. And everybody gets all panicked on the last Friday of the month, or first Friday of the month, what do we have announced? The jobs report, right? And you get all the TV, they hype you up, and they, the jobs report, the jobs report, you're all focused on the jobs report. Well, if the underlying structure of the market is strong, and the jobs report, or the employment report comes out on that first Friday, and it's negative, guess what?
+
+### [26:30 - 27:00] `frame_0054.jpg`
+
+Well, if the underlying structure of the market is strong, and the jobs report, or the employment report comes out on that first Friday, and it's negative, guess what? Now, you may get a knee-jerk reaction to the downside from traders that don't know anybody, they're just selling the headline because they don't want to think. You get an initial reaction to the downside, and then even though the number was negative, you finish the day to the upside. And you say, well what happened? The number was negative. We throw a word around a lot, we call cognitive dissonance. It's absolutely one of the things that kills traders.
+
+### [27:00 - 27:30] `frame_0055.jpg`
+
+It's absolutely one of the things that kills traders. They hear the number, they hear the number is negative. They couldn't trade objectively to the long side of the market following that, because cognitive dissonance is trying to hold two thoughts. The market structure may say the market's strong, but they've heard this, they've heard the commentator say the number's negative. As if the commentator really knew. They don't know the adjustments or expectations or anything else. But if you have an understanding that the market structure is strong, the number is negative, you get a little bounce down, structure supports it, and very often or not, the market will tear back to the opposite direction.
+
+### [27:30 - 28:00] `frame_0056.jpg`
+
+But if you have an understanding that the market structure is strong, the number is negative, you get a little bounce down, structure supports it, and very often or not, the market will tear back to the opposite direction. The market is strong, and it gets a number that is consistent with that. You may get a market that just really accelerates to the upside. So, again, so much is based upon structure. We've had, we had the break taking place not too long ago, and when that break was taking place, we were getting some awful good news.
+
+### [28:00 - 28:30] `frame_0057.jpg`
+
+We've had, we had the break taking place not too long ago, and when that break was taking place, we were getting some awful good news. Okay? And why were we getting? Because the underlying structure wasn't very good. So, anyhow, the value profile, we can look at the market in total, or holistically, or we can take it apart and perform analysis. We need to do both. Too much analysis, too much analysis, it will be very difficult to trade successfully. No analysis, it will also be very difficult to trade successfully.
+
+### [28:30 - 29:00] `frame_0058.jpg`
+
+No analysis, it will also be very difficult to trade successfully. It is a combination of having a holistic understanding as well as an analytic understanding. Okay, let's kind of continue. Various structures, just a review. We looked at the primary day, we used it as a benchmark. We looked at a trend day. We looked at a balance, kind of a squat day.
+
+### [29:00 - 29:30] `frame_0059.jpg`
+
+> **📊 Slide:**
+> OPENINGIN
+> RELATION TO VALUE
+> AND RANGE
+> - OPEN WITHIN
+> YESTERDAY'S RANGE
+> » OPEN OUTSIDE
+> YESTERDAY'S RANGE
+> . OPEN WITHIN
+> YESTERDAY'S VALUE
+> » OPEN OUTSIDE OF
+> ___ YESTERDAY'S VALUE _
+> i WwW N -»
+
+We looked at a balance, kind of a squat day. We looked at a short covering day. So, these structures are all over the place. Within each structure, the market is talking to us differently, right? Just like years ago, it was on a very small basis, but when there used to be a lot of floor trading, the floor traders heard what was going on in the market. Now, we do it through sight. Okay? We take a look, and this example, Billy Bob, you've been asking me about this example for some period of time.
+
+### [29:30 - 30:00] `frame_0060.jpg`
+
+We take a look, and this example, Billy Bob, you've been asking me about this example for some period of time. I used to run an institutional trading desk. And having run an institutional trading desk, you learned an awful lot about how big money trades. When big money comes into the market, they don't come into the market and buy all at once. If I get an order on an institutional trading desk, whether it's in futures or stocks, if I go and buy all of what I'm supposed to buy at one time, guess what?
+
+### [30:00 - 30:30] `frame_0061.jpg`
+
+If I get an order on an institutional trading desk, whether it's in futures or stocks, if I go and buy all of what I'm supposed to buy at one time, guess what? The chances that I'm going to give a customer the best fill of the day are pretty slim. If I give them the best fill for the day, I got really lucky. I would prefer to give them an average fill. If I give them an average fill, I'm never going to give them the best, right?
+
+### [30:30 - 31:00] `frame_0062.jpg`
+
+If I give them an average fill, I'm never going to give them the best, right? But I'm never going to give them the worst. And what you really don't want to do running an institutional desk, you never want to deliver the worst fill of the day to an institutional client. You will never be forgotten, and you probably won't have that business going forward. So, let's say they give me a couple of million shares to buy if it's stock. What am I going to do? In this case, let's say sell. They're going to give me some to sell. I'll sell some early, so the market will break.
+
+### [31:00 - 31:30] `frame_0063.jpg`
+
+I'll sell some early, so the market will break. I let the market settle. I sell some more. I let it settle. I sell some more. It's more like a wave-like process. And usually, it's not just one institution. A lot of times, you'll get a tone to a day, and that tone will continue throughout the day. This is the S&Ps, April 30th of this year. And as you can see, the high was made early. The high was made early.
+
+### [31:30 - 32:00] `frame_0064.jpg`
+
+The high was made early. So, there was aggressiveness from the opening bell, right? The market sold off. It balanced. It sold off again. It balanced. It sold off. It sold off again. It was a wave-like action throughout the day. That's kind of a standard. Now, sometimes, you'll get markets that just go straight down. I mean, they don't do any balancing.
+
+### [32:00 - 32:30] `frame_0065.jpg`
+
+> **📊 Slide:**
+> OPPORTUNITIES RELATED TO
+> THE OPENING
+> 1. SMALLER OPPORTUNITY:
+> A. PRICE OPENS WITHIN YESTERDAY'S
+> RANGE
+> B. PRICE OPENS WITHIN YESTERDAY'S
+> VALUE
+> 2. LARGER OPPORTUNITY:
+> A. PRICE OPENS OUTSIDE OF
+> YESTERDAY'S RANGE
+> B. PRICE OPENSOUTSIDE OF
+> YESTERDAY'S VALUE |
+
+I mean, they don't do any balancing. That's probably long location. That's probably fear. These type of markets, when you have big money selling, will normally look something like this. Normally, like a wave kind of action. Again, another market that you don't want to go against. We've seen this fairly recently. Anyhow, just an example. Billy Bob, I know you've asked me for this. Now you've got it. We want to trade value, not price.
+
+### [32:30 - 33:00] `frame_0066.jpg`
+
+We want to trade value, not price. We'll see the slide again. But think about any business. Price is an advertising mechanism. Time regulates all advertised opportunities. And volume measures the success or failure of all advertised opportunities. When you put time, price, and volume together, when you get the composite, you have value.
+
+### [33:00 - 33:30] `frame_0067.jpg`
+
+When you put time, price, and volume together, when you get the composite, you have value. Biggest insult I can look to say to someone and see somebody that's trading and say, oh, you trade price. Well, how would you like to say, well, I trade an advertising mechanism? Sounds pretty silly, right? But that's all price is. Price advertised is an opportunity. Some opportunities are accepted, right? Some opportunities are rejected. Value is kind of the composite of all of it.
+
+### [33:30 - 34:00] `frame_0068.jpg`
+
+Value is kind of the composite of all of it. Before we took a break, we're talking about the value area, and we trade value, not price. I will promise you the most difficult thing that you will deal with, if you get interested in what we're talking about, is getting away from price. It is addictive. Our minds like price because it does linear, right? It goes 1, 2, 3, 4, 5, 5, 4, 3, 2, 1. Boy, and we get so focused on it, we get hunched over the machine.
+
+## Section 5: Boy, and we get so focused on it, we get hunched over the
+
+### [34:00 - 34:30] `frame_0069.jpg`
+
+Boy, and we get so focused on it, we get hunched over the machine. The killer is getting trapped by price. It is addictive. It pulls you into it. I see Rue in the back. Rue is from Phoenix. He's a tennis pro. Came out and traded with me one day. And one of the comments he made was, wow. He said, I can't believe it. He said, you sit back when you trade. And he said, you're taking in the full landscape.
+
+### [34:30 - 35:00] `frame_0070.jpg`
+
+> **📊 Slide:**
+> WHEN PRICE AND VALUE DON'T COINCIDE
+> oom ile
+> wv wwe
+> Lal uw A.
+> aer uy ’
+> AGI “
+> ae iti u
+> ABCT IE u
+> Agcorie# PV
+> i” Orgat eu
+> acuce
+> AGron. FQouc @ek! ametu
+> . Pcdel ene
+> rf anoer
+> r napae
+> oupae
+> evar e
+> eeaqai
+
+And he said, you're taking in the full landscape. And it's that taking in the landscape that he coined that allows me to stay away from getting trapped by price. Sometimes I get tense. If I get tense, I tend to, you know, kind of cuddle up the machine. You start to cuddle up the machine. You get overly focused on price, and you can't believe the mistakes you make because you lose the bigger perspective of what is going on. Alright, let's take a look at some of the value area relationships.
+
+### [35:00 - 35:30] `frame_0071.jpg`
+
+Alright, let's take a look at some of the value area relationships. In here, all we're looking, we have lower value, higher value. Overlapping to lower value. Clearly higher value, clearly higher value. Notice the difference value. You can have, we'll look later on, you can have situations where price is higher and value is lower. Or price is lower and value is higher. When I knew that I was really making the transition to internalizing this information, and that's really what it's about.
+
+### [35:30 - 36:00] `frame_0072.jpg`
+
+When I knew that I was really making the transition to internalizing this information, and that's really what it's about. Getting to the level where you've internalized the information. When somebody would ask me, what did the market do today? The standard, if I trade S&Ps, the standard answer might have been, oh, we were up, we were up six and a half today. When I knew I had started to internalize the information, somebody would ask me that, and the first thing coming out of my head would be, value was higher today.
+
+### [36:00 - 36:30] `frame_0073.jpg`
+
+When I knew I had started to internalize the information, somebody would ask me that, and the first thing coming out of my head would be, value was higher today. And of course, you know, when you're talking to someone that has no idea what you're talking about, that is not an answer that gets a lot of appreciation and they have no idea what you're talking about. But I knew that I was really starting to take this information to the next level. So we're always looking at value. We said earlier that one of the things that we're trying to do is visualize what the profile looks like before the day is over.
+
+### [36:30 - 37:00] `frame_0074.jpg`
+
+We said earlier that one of the things that we're trying to do is visualize what the profile looks like before the day is over. We said the key is to visualize, not predict. But along with that, I'm always looking to see what kind of value am I going to have today. I'm going to have higher value, lower value, unchanged value, overlapping value. We were doing the live trading, as I mentioned yesterday morning.
+
+### [37:00 - 37:30] `frame_0075.jpg`
+
+We were doing the live trading, as I mentioned yesterday morning. And part of the process that we went through was looking and saying, okay, say price opened higher and it's starting to go lower and you have a trade that looks like a good short. And you say, oh, wait a minute. Price is trying to go lower, but from where price is right now, what is the likelihood that we can even get unchanged value? And when all of a sudden we were saved on a couple of trades, we said, you know, we're an hour and a half into the day. There is no way that we're going to get unchanged value.
+
+### [37:30 - 38:00] `frame_0076.jpg`
+
+> **📊 Slide:**
+> PIT SESSION OPENING TYPES
+> 1. OPEN DRIVE
+> 2. OPEN TEST DRIVE
+> 3. OPEN REJECTION
+> REVERSE BOPENAMETION
+> 4. OPEN AUCTION
+
+There is no way that we're going to get unchanged value. We could get lower price, but we're not going to get unchanged value. And in those markets where we made those observations before the day was over, the market turned around and went directionally with value, not in the same direction that price initially went. Let's take a couple of examples. Let's start over here on the left. Here's our value. Down here we have lower value and we're looking at lower value, lower value and lower price.
+
+### [38:00 - 38:30] `frame_0077.jpg`
+
+Down here we have lower value and we're looking at lower value, lower value and lower price. We come up here. The next we have higher value, higher price. The following day we have overlapping to higher value, but we have lower, lower price. So when you go through this, you have all of these combinations and permutations that can take place. They are very meaningful.
+
+### [38:30 - 39:00] `frame_0078.jpg`
+
+They are very meaningful. As you gain experience and you start to understand the difference between price and value, the question that you're always going to be dealing with, when price is away from value, the question is, will price get pulled back to value? Or will value get pulled to price? That's the basic analytic question you're looking at.
+
+### [39:00 - 39:30] `frame_0079.jpg`
+
+That's the basic analytic question you're looking at. When you come in, for example, early on, we showed where the point of control did not migrate lower. If you remember, we had the 45 degree line and we said people were getting caught short in the hole. I sent the email out that there may be a short covering trap. What was the issue I was dealing with? The issue was, was price going to get pulled back to value or was value going to be pulled down to price?
+
+### [39:30 - 40:00] `frame_0080.jpg`
+
+The issue was, was price going to get pulled back to value or was value going to be pulled down to price? When we looked and we saw the fairest price to conduct business was not migrating lower. The chances were that price was going to snap back to where value was. Well, if you don't have any idea of the concept of price and value, you're never going to be able to make that analysis when you're trading the market.
+
+### [40:00 - 40:30] `frame_0081.jpg`
+
+Well, if you don't have any idea of the concept of price and value, you're never going to be able to make that analysis when you're trading the market. And if you don't think there's a difference between price and value, go out and next time you buy a car, whatever the sticker price says, if it's American car, whatever the sticker price says, just write the check. Just write the check, right? How many people are going to do that? Because do you see price and value as being the same? You know, a lot of times you will pass something up because you look at the price, but you don't think the price offers value.
+
+### [40:30 - 41:00] `frame_0082.jpg`
+
+> **📊 Slide:**
+> 1.OPEN DRIVE
+> ANoOAnAaAAaAAH
+> OPENING
+> PRICE IS LOW
+> OF DAY
+
+You know, a lot of times you will pass something up because you look at the price, but you don't think the price offers value. Other times you will snap something up very quickly, right? Because you think, wow, that is a value situation. I made the comment earlier that I marvel at people that have been extremely successful in business. I'm talking extremely successful in business. They will come in and they want to talk about learning to trade futures. But yet they will not employ the same principles that they employed in business in trading the market.
+
+### [41:00 - 41:30] `frame_0083.jpg`
+
+But yet they will not employ the same principles that they employed in business in trading the market. They want to just look at price. I look at them and say, wait a minute, in business, no two prices were equal, right? And it's not in the market. But so many people have talked to them about price and so many books they've read talk about price. They get sucked into price and they lose the idea of the concept of the difference between price and value. You make money.
+
+### [41:30 - 42:00] `frame_0084.jpg`
+
+You make money. You make money by buying something below value or selling it above value. You also make money in a trend. You also make money in a trend when you have a pretty good idea that you're ahead of the market and a pretty good idea that value is going to come up to meet your price. Those are the two decisions that you need to make. Historically, when you first start to read books on trading and start learning about trading, most people introduce you to reversion to the mean type of trades.
+
+### [42:00 - 42:30] `frame_0085.jpg`
+
+Historically, when you first start to read books on trading and start learning about trading, most people introduce you to reversion to the mean type of trades. Okay? They feel intuitively good. And in some markets, they are wonderful. But that is when price is going to get pulled back to value. When you have a new trend taking place, price is leading value. And when price is leading value, those are the biggest opportunities. They are the most uncomfortable trades to make.
+
+## Section 6: They are the most uncomfortable trades to make
+
+### [42:30 - 43:00] `frame_0086.jpg`
+
+They are the most uncomfortable trades to make. If you have a breakout or you have a trend that begins where price is leading value, you're going to have to pay 12 for something that you could have paid 10 for yesterday. That intuitively doesn't feel good to us. However, very often when the trend develops, there is less risk. There is less risk in paying 12 for something than there is in paying 10 for it because price is leading value.
+
+### [43:00 - 43:30] `frame_0087.jpg`
+
+There is less risk in paying 12 for something than there is in paying 10 for it because price is leading value. You're moving away from one distribution into another distribution. Amateur traders very often can't make that determination. Season traders know that intuitively. But one of the things, what you really want to focus on in this area right now is thinking about the difference of price and value. In some cases, price will revert back to value.
+
+### [43:30 - 44:00] `frame_0088.jpg`
+
+> **📊 Slide:**
+> CDEFIJKL |; y A ef
+> CDEFIJL || y ZA EF
+> coerid || yoAB EF
+> DEFG! J y zAB 2
+> DEFGIJ || y,zAB DEF
+> OEFGH IJ py eee
+> DFGH | y zABCODEF
+> DFGH | yz BODEF
+> GH| yz aco
+> HI y BCD
+> H y CD
+
+In some cases, price will revert back to value. In other cases, price will lead value. If price is leading value, would you expect volume to be increasing or decreasing? Increasing, right? If I raise the price of a product that I'm selling and my volume stays the same or increases, guess what? I got a trend going and it's very successful. And if I raise the price of something, my volume increases or stays the same before long, what am I going to do again?
+
+### [44:00 - 44:30] `frame_0089.jpg`
+
+And if I raise the price of something, my volume increases or stays the same before long, what am I going to do again? I'm going to raise the price again, right? Guess what we call that? We call it a trend. Okay, so these relationships are very, very important. You'll get price in the morning that opens within yesterday's range, outside of yesterday's range, within yesterday's value, outside of yesterday's value. Those are all extremely important relationships that you want to be aware of.
+
+### [44:30 - 45:00] `frame_0090.jpg`
+
+Those are all extremely important relationships that you want to be aware of. When price opens right within the previous day's range, the previous day's value, what do you think the opportunity is? Small opportunity. It's going to be a small opportunity, absolutely. When price opens outside of value and outside of the range, the opportunity is much greater. Even if it's an opportunity to continue in the way it opened or an opportunity to snap back to where value was, it's still going to be a bigger opportunity.
+
+### [45:00 - 45:30] `frame_0091.jpg`
+
+Even if it's an opportunity to continue in the way it opened or an opportunity to snap back to where value was, it's still going to be a bigger opportunity. Okay. When we look at the far side, when we look at these relationships on the far side, we have price above value. At that point in time, price closes higher, however value is actually lower. The opportunity now is really the question we addressed.
+
+### [45:30 - 46:00] `frame_0092.jpg`
+
+The opportunity now is really the question we addressed. Will price get pulled back to value or will value get pulled up to price? A lot of that is going to depend upon how prominent and how well designed the actual value area and the structure was. It takes a lot to get away from a well-defined value or structural area. Okay. So the question is, when price and value don't agree, we are looking at different variations of opportunities.
+
+### [46:00 - 46:30] `frame_0093.jpg`
+
+So the question is, when price and value don't agree, we are looking at different variations of opportunities. The pit session openings. What I'm going to do here, I'm going to talk about four types of openings. After we talk about these, we're then going to go to today's market and see if we see these relationships any place in today's market and how we would make use of them. The first type of opening is an open and drive.
+
+### [46:30 - 47:00] `frame_0094.jpg`
+
+> **📊 Slide:**
+> of Vision - disc 2
+> ACDELF OF ABCDFGT J
+> AC DEF OF AHF J
+> AC DEF ORe AHF J
+> AC DEF OF AMP J
+> ADEE OR Ait J
+> AC DEF OH JK AB JF
+> AC DEF OH JR AB JF
+> AC DEF GH UR AB JF
+> CDEFGH UF , AR JF
+> COEF GH UF AD JF
+> CDEFGH JF AR JF
+> CDEFGH | JK lena
+> CDEFH I JF AB JF
+> | CDEFH I JF A Jk
+> COW | UF Ar
+> COW | UF Ar
+> DH | JK A JF
+> DH | UK A JK
+> DH | JK
+> <9) DH | JK :
+> ‘ D1 JK
+> ae ee © ete
+> od wear
+> 3 uv
+
+The first type of opening is an open and drive. In an opening drive, price is basically on the low or the high of the day, depending on the direction of the auction. The market opens. Price moves aggressively from the opening bell. The trading community or the investors knew what they wanted to do from the opening bell. It is very aggressive. It moves very quickly. It is the highest confidence opening you will see. The higher the confidence of the opening, the less the odds that you will come back through that opening price.
+
+### [47:00 - 47:30] `frame_0095.jpg`
+
+The higher the confidence of the opening, the less the odds that you will come back through that opening price. And we're always talking about odds and confidence when we trade a market. We saw this yesterday. We had a market yesterday. It opened. It was back and forth through the opening multiple times. We said the confidence was very low. We said the confidence was very low. Guess what? I don't have to trade early, right?
+
+### [47:30 - 48:00] `frame_0096.jpg`
+
+I don't have to trade early, right? When the confidence is high, I need to trade quickly. A lot of times, I get people asking me the question, well, Jim, I've heard people say I should trade later in the day after the market has set up. And I say, no, I don't buy into any of that. You need to trade. You need to trade when the confidence is there, whether that happens early or late. In an open and dry, high confidence market, you tell me, do you want to trade early or do you want to trade late?
+
+### [48:00 - 48:30] `frame_0097.jpg`
+
+In an open and dry, high confidence market, you tell me, do you want to trade early or do you want to trade late? You want to trade early. You want to get on the vehicle that's moving at that point in time. Just get on. Don't be a perfectionist. Don't nitpick it. Don't get on to get on to the market, particularly if you're short term trader. Okay. So for the first time we have an opening drive, usually the opening will be on or very close to the low for the day. The second highest confidence opening is an open test drive. So in this case, the market opens.
+
+### [48:30 - 49:00] `frame_0098.jpg`
+
+So in this case, the market opens. It opens right here where the circle is. It opens test lower. And when it tests lower, it finds buyers. Very often in an open and test type of market situation, the test lower will go to some reference point that you could define. That reference point may be a pull back low.
+
+### [49:00 - 49:30] `frame_0099.jpg`
+
+> **📊 Slide:**
+> OPENINGS ALLOW US TO
+> ACCESS OPPORTUNITIES
+> FOR INSTANCE, ARE WE
+> BEGINNING THE DAY IN OR
+> OUT OF BALANCE?
+> THE BIGGEST OPPORTUNITIES
+> OCCUR WHEN WE ARE OUT OF
+> BALANCE
+
+That reference point may be a pull back low. It may be a previous point of control. It may be a previous days high or low. It may be a monthly or weekly high or low. But it will generally go to some reference point. So it tests. In other words, tests lower. Very often it will test to a reference point. And once you get to that reference point, you find there are buyers in the market. Once you find there are buyers in the market, the market then continues in the opposite direction for most of the day. Second highest confidence opening you will have.
+
+### [49:30 - 50:00] `frame_0100.jpg`
+
+Second highest confidence opening you will have. Okay. Our third type is an open rejection reverse. In other words, in this case, the opening usually trades in the opposite direction from what the day will be for an extended period of time. In other words, if the opening, in this case, if the opening and test was higher, when the market is going higher, what is it searching for?
+
+### [50:00 - 50:30] `frame_0101.jpg`
+
+In other words, if the opening, in this case, if the opening and test was higher, when the market is going higher, what is it searching for? It's searching for sellers. Absolutely. Okay. In an open rejection reverse, it just simply had to go a whole lot higher before it attracted the sellers. But once they got to that level, the sellers came in fairly aggressively and then took the market in the opposite direction. So when you're talking about confidence, open and drive, highest confidence.
+
+### [50:30 - 51:00] `frame_0102.jpg`
+
+So when you're talking about confidence, open and drive, highest confidence. Open test drive, second highest confidence. Open rejection reverse, third level confidence. The level of confidence just tells you what are the chances that this market is going to come back at you before the day is over. And now let's look at the last type of confidence, which is the lowest confidence opening. The lowest confidence opening is called an open auction. In other words, the market goes back and forth through the opening price multiple times.
+
+### [51:00 - 51:30] `frame_0103.jpg`
+
+In other words, the market goes back and forth through the opening price multiple times. In other words, what do you think? If it goes back and forth through the opening price multiple times, what do you think the level of conviction is? It's pretty low. It's pretty low. Do you need to trade early or late? Trade late. Trade late. Absolutely. Trade late. Relax. Let the market come to you. Here's the difference. In an open auction, low confidence, sit back, let the market come to you. In a high confidence open, you have to go to the market, right?
+
+## Section 7: In a high confidence open, you have to go to the market,
+
+### [51:30 - 52:00] `frame_0104.jpg`
+
+In a high confidence open, you have to go to the market, right? So you see the differences in there. Now, let's take this one step. Let's take this one step further. When you, and let's look at today's markets. Let's start with the bonds. Okay? Now, on the right hand side, you have the first period in bonds. There's the opening right in the middle. Okay?
+
+### [52:00 - 52:30] `frame_0105.jpg`
+
+> **📊 Slide:**
+> CONTEXTUAL
+> UNDERSTANDING OF
+> OPENINGS
+> “NO LEARNING HAPPENS
+> WITHOUT UNDERSTANDING
+> CONTEXT”
+
+Okay? What kind of an opening do you think I have in bonds today? Open auction, right? Back and forth through the auction, through the opening many times. So what do you think the opportunity is? Big or small right away? Small. Small, right? Okay? Let the market come, let the market come to me, right? We've now traded for one, two, three, four, five, six, seven. We're in the eighth time period. And guess what? Has any confidence developed yet? No confidence at all, right?
+
+### [52:30 - 53:00] `frame_0106.jpg`
+
+No confidence at all, right? So I probably still haven't had a trade. Now, while we're looking at it, can you put the cursor on unchanged from yesterday? Right there. See that level right there? That's unchanged from yesterday. We're talking about nuances here. I didn't intend to talk about this, but it's up here. This is real. This is a live market today. One of the major references short-term traders will use is unchanged. When a market goes up and it can't get to unchanged, okay, can't get to unchanged, what's it going to do next more than likely?
+
+### [53:00 - 53:30] `frame_0107.jpg`
+
+When a market goes up and it can't get to unchanged, okay, can't get to unchanged, what's it going to do next more than likely? Look at A period. It got up. It got what? One tick short of unchanged? It couldn't make unchanged. Where did the auction go next? It went down and it looked right at this morning's opening. Went to the opening. How many people, you know, most people don't understand. That opening price, unchanged, they are tremendous short-term indicators to understand what's going on. Now, we've got the market.
+
+### [53:30 - 54:00] `frame_0108.jpg`
+
+Now, we've got the market. It went back up, couldn't make unchanged, coming back down. Nothing going on in the 30-year treasury bonds, at least at this point. Okay? Nothing major. Alright, let's take a look at, what's the next market we want to bring up? Crude. Okay, let's take a look at crude. Crude opened at where you see the ACD. Okay? Pretty quiet early on. Then, crude rallied to the upside. Okay?
+
+### [54:00 - 54:30] `frame_0109.jpg`
+
+Okay? Crude rallied. There's the opening. There's the A period. There's the B period. C period. So the opening was down early on. This is yesterday's range. Are we in or out of yesterday's range on crude? We're in. We're in yesterday's range. Okay? So now, let's add more complexity to it. So I take the opening and I put the opening inside of yesterday's, inside of yesterday's range.
+
+### [54:30 - 55:00] `frame_0110.jpg`
+
+So I take the opening and I put the opening inside of yesterday's, inside of yesterday's range. See the blue line there? The blue line is value area from yesterday, where 70% of yesterday's trade took place. We open outside of value, but we open within yesterday's range. First period auctioned down, but in range. Okay? In range, opportunity more than likely, big or small? Small. Probably small. We open down and then the market in B period went down. Tried to look at yesterday's low.
+
+### [55:00 - 55:30] `frame_0111.jpg`
+
+> **📊 Slide:**
+> OPENING IN RELATION TO
+> VALUE AND RANGE
+> 1.OPEN INSIDE VALUE
+> 2.OPEN OUTSIDE VALUE
+> WITHIN RANGE
+> 3.OPEN OUTSIDE RANGE
+
+Tried to look at yesterday's low. Right? Did it get it? Didn't get it. Okay? Didn't get that. Now it's going to auction higher again. Okay? Then it goes up and it gets to yesterday's. Guess what that level is? See that low up there? That BCD? We talked about that yesterday afternoon in the live trading seminar. We call that, it's an anomaly. Or that was another way, it was the point of control. It was also the fairest price to do business.
+
+### [55:30 - 56:00] `frame_0112.jpg`
+
+It was also the fairest price to do business. Okay? Most people would have no idea about that silly little price. Or that silly little anomaly. That was the fairest price at which business was being conducted yesterday. Look at the close yesterday, it was down here. The close was down there. Okay? What happened? We talked early on, we introduced a subject called repair early on. Right? We went back and revisited that part of the structure.
+
+### [56:00 - 56:30] `frame_0113.jpg`
+
+We went back and revisited that part of the structure. That part of the structure, that anomaly, the market was having trouble moving away from that. Even though price came lower, it went back and revisited that part of yesterday's structure. Does it look like an anomaly? A rough edge? Does it stick out differently than anything else you see? Now, are you going to, the first day you start to use this, are you going to really pick up on that? Probably not. I said, nuances are important. Most people, if they heard me talking about that, and I'm going to guess that yesterday,
+
+### [56:30 - 57:00] `frame_0114.jpg`
+
+Most people, if they heard me talking about that, and I'm going to guess that yesterday, when we were in here yesterday, and I kept pointing out this price late in the day. I'm going to guess that even seasoned people that I've worked with for a long period of time, were probably kind of shaking their head and saying, it's one price, it really is making a big deal out of something. Let's move on. Okay? And we trade down here. And it took a while, but look what it did today.
+
+### [57:00 - 57:30] `frame_0115.jpg`
+
+And it took a while, but look what it did today. That's a nuance. That is a nuance. Okay? We started talking about the openings. First we said, open within yesterday's range, opportunity probably big or small. Probably small, right? Okay? And it was, right? We auctioned a little higher, a little lower. We went down, we didn't take the low, we walked auctioned a little higher. Then we went back up and checked out that price in D period. Then the market broke on the downside. Again, I had some information based upon where the market opened.
+
+### [57:30 - 58:00] `frame_0116.jpg`
+
+Again, I had some information based upon where the market opened. And yes, the market opened, contextually, the market opened and drove lower. Let's look at the opening one more time this morning, please. Okay? The opens on the high. So we opened and we drove lower, right? So you say, oh, wait a minute. It's an open and drive. But the context is different. It's opened and drive and it's within yesterday's range. Opportunity is small. Then it doesn't get the low.
+
+### [58:00 - 58:30] `frame_0117.jpg`
+
+> **📊 Slide:**
+> sccee
+> seocacdd
+> 2. OPEN OUTSIDE VALUE WITHIN RANGE
+> aa Cow
+> << (<¢ SCCuslizzz
+
+Then it doesn't get the low. If it doesn't get the low or the single, the buying tail from yesterday, first time, what's going to happen? This means sell. It gets down there and doesn't get it. If you were still on the floor, hands would be out. We'd start auctioning higher. Okay. So we looked at the bond opening, which was an open auction back and forth, no confidence, eight periods in, no options. If I, let's say I had a market and I have a five month high. Okay? Do you think the short term trader has any interest in taking the market out of a five month high?
+
+### [58:30 - 59:00] `frame_0118.jpg`
+
+Do you think the short term trader has any interest in taking the market out of a five month high? It's not what they do. However, the intermediate term trader or the long term trader might have an interest in that. So when I start to see a four or five month high and I go outside of that range, that gives me information that the participation in the market is by longer, more serious time frames. A long time frame ends, a long term trend ends or terminates in an intermediate term trend.
+
+### [59:00 - 59:30] `frame_0119.jpg`
+
+A long time frame ends, a long term trend ends or terminates in an intermediate term trend. An intermediate term trader is a relatively substantial trader. They're what we may call swing traders. They may trade from the top to the bottom of a very wide trading range in there. You will also have short term trends within the intermediate term trends.
+
+### [59:30 - 1:00:00] `frame_0120.jpg`
+
+You will also have short term trends within the intermediate term trends. You have the long term trend. You have intermediate term trends. You have short term trends and then day time frame trades within the short term trends. So it gets fairly complex in there. But you hear all the time. You know, you have the long term, long term trend is up. You get a correction. You get a correction, you know, to the long term trend. So it may be a short term trend that's correcting the long term trend. Happens all the time. So the intermediate term trend may be people like John Henry, who's a major hedge fund up in Connecticut.
+
+## Section 8: So the intermediate term trend may be people like John
+
+### [1:00:00 - 1:00:30] `frame_0121.jpg`
+
+So the intermediate term trend may be people like John Henry, who's a major hedge fund up in Connecticut. Maybe some of the Morningstar mutual funds. Barclays, alternative investment people, DB advisors from Deutsche Bank, people that are in the hedge fund or alternative investment world. These are, you know, they're relatively big players. They tend to be fast players. They have quite a bit of money at stake. They employ quite a bit of leverage in the game. And they're meaningful. When they're in the market, they can move the market.
+
+### [1:00:30 - 1:01:00] `frame_0122.jpg`
+
+> **📊 Slide:**
+> TIME FRAMES
+> uD WN
+> SCALPER
+> DAY TIMEFRAME
+> . SHORT TERM
+> . INTERMEDIATE TERM
+> ». LONG TERM
+
+When they're in the market, they can move the market. But this group is not responsible for moving the market to new highs and new lows, right? That's not what they do. The long term traders, which our last group, will be people like Fidelity, JP Morgan, Vanguard, Invesco. These are just examples. These are just examples of the long term traders or the sticky money traders. When they come in the market, they come in in size. They come in in size and they really start to pressure a market either up or down.
+
+### [1:01:00 - 1:01:30] `frame_0123.jpg`
+
+They come in in size and they really start to pressure a market either up or down. Their orders, the size of these orders are so big, they may exist for multiple days. They may be working a position for multiple days. I said I used to run an institutional trading desk. We may get orders that we're working for a substantial period of time. We're continually buying. We're buying every pullback and we may be buying it for days. Okay? So part of your understanding of the markets is understanding when these kind of people, what time frame is in the market.
+
+### [1:01:30 - 1:02:00] `frame_0124.jpg`
+
+So part of your understanding of the markets is understanding when these kind of people, what time frame is in the market. And like I say, you will spend a lifetime wrestling with these issues and what time frame is in control. It is extremely important to you being a successful trader. We talk about the time it takes to assimilate the knowledge we're talking about. It is substantial. It is substantial. People that come in and think, I have people all the time say, well Jim, I'm smarter than the average.
+
+### [1:02:00 - 1:02:30] `frame_0125.jpg`
+
+People that come in and think, I have people all the time say, well Jim, I'm smarter than the average. I want the three month course. Or don't you have a six month course? You know, I just laugh when I say, it's been really very, very nice to meet you. But I'm not going to be able to help you. You're going to be frustrated with you. When you get into this, guess what? When we're talking about this, you're starting to feel a lot of ambiguity. Okay? Do people like ambiguity? They loathe it, right? They want an answer. Jim, what's the market going to do?
+
+### [1:02:30 - 1:03:00] `frame_0126.jpg`
+
+Jim, what's the market going to do? I'm a reporter from CNBC. Well, which way, what do you think the last hour of trading is going to look like today? How high is it going? That's what people want to know, right? Watch one of those anchors when somebody says, I have no idea. They're just dying with their mic, right? Because that's not the way they answer. Years ago, they used to have a, used to be around the Merck and the S&P pit. One of the local radio stations came after me and they wanted me to broadcast up there for them.
+
+### [1:03:00 - 1:03:30] `frame_0127.jpg`
+
+One of the local radio stations came after me and they wanted me to broadcast up there for them. For five minutes in the morning and five minutes on the drive home. We're after the markets are closed. I said, guys, you're not going to want me. I said, if you, if you hire me to do this, within a month, you're going to be very apologetic. You're going to be singing and dancing and trying to get out of this. No, no, no. We've got a lot of requests. I said, believe me. I said, the drive home will be okay.
+
+### [1:03:30 - 1:04:00] `frame_0128.jpg`
+
+> **📊 Slide:**
+> TIMEFRAME BEHAVIOR
+> REVEALS ITSELF AS THE SESSION
+> UNFOLDS
+> THIS ENABLES THE TRADER TO
+> DISCERN WHO IS DOMINATING
+> IN THE MARKET
+> AND SUBSEQUENTLY WHAT
+> STRATEGY AND TACTICS TO
+> UTILIZE
+
+I said, the drive home will be okay. So anyhow, I went ahead and did it. And of course, it's a month later. Their readers are irate. They are irate. They want to know where do I buy it? Where do I sell it? And I may tell them, I may be up there and say, this is an extremely low confidence day. I see no opportunities in here today in this S&P market. Boy, that goes over big, doesn't it? Now, the drive home people that listened were from the floor.
+
+### [1:04:00 - 1:04:30] `frame_0129.jpg`
+
+Now, the drive home people that listened were from the floor. They had a better understanding. So my ratings for the drive home was fine. Mid-morning, what do I buy? What do I sell? They couldn't get me out of there fast enough. And that's what happens with a lot of the S&P. As we get into the more complex stuff, there is a tremendous amount of ambiguity. And it's that, within that ambiguity, are the real opportunities. Those that can, I think, can get through it. Anyhow, timeframe behavior. It reveals itself as the sessions unfold.
+
+### [1:04:30 - 1:05:00] `frame_0130.jpg`
+
+It reveals itself as the sessions unfold. Talking about who's in control of a market. If, in fact, a market goes exactly to last night's close, or exactly to yesterday's high, or exactly to yesterday's low, or exactly halfway back in the morning, do you think that's the long timeframe? Do you think they're the longest timeframe?
+
+### [1:05:00 - 1:05:30] `frame_0131.jpg`
+
+Do you think they're the longest timeframe? Do you even think they know what unchanged is and all? They don't know. Do you think it's the intermediate timeframe? They could care less. They have no idea. A lot of these big firms, they don't even have bar charts in their shops. Now, when you start getting down, it goes exactly to unchanged, exactly to the day's opening, exactly to the high and the low. Who do you think is dominating the market? What timeframe? Probably the daytime frame trader, right?
+
+### [1:05:30 - 1:06:00] `frame_0132.jpg`
+
+Probably the daytime frame trader, right? Okay. The characteristics and the behavior of the daytime frame trader is substantially different than the behavior of the next longest timeframe. The daytime frame trader, well, probably, if that's who's dominating the market, then what you're trying to do very early, figure out who's dominating the market. The daytime frame trader, they will buy yesterday's high, they'll sell yesterday's low. The long timeframe or longer timeframe, they could care less. So you start very quickly to understand who's dominating the market today, who's dominating the market, starts to help you identify what your opportunities are.
+
+### [1:06:00 - 1:06:30] `frame_0133.jpg`
+
+So you start very quickly to understand who's dominating the market today, who's dominating the market, starts to help you identify what your opportunities are. As you start thinking about doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of things on doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts of doing all sorts doing all sorts of doing all sorts doing all sorts doing all sorts doing all sorts doing all sorts doing all sorts doing all sorts doing all

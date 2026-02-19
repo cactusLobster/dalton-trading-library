@@ -1,0 +1,8 @@
+*.wav
+*.avi
+*.pdf
+*.jpeg
+dvd*_frames/
+dvd*_slide_images/
+paul-revere/*.pdf
+paul-revere/*.jpeg
